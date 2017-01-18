@@ -1,1 +1,2 @@
 # anxiety-help
+I am a vehement anti-capitalist dedicating to exposing the lies of neoliberalism. Obviously, this involves a lot of anxiety. I want to work on a project that will help me deal with this by simultaneously allowing me an expressive outlet, the opportunity to learn and work on a new skill(s), and to hopefully create something that will help others deal with what I am all too familiar with. 
